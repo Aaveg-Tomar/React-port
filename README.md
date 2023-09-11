@@ -22,7 +22,5 @@ With a strong affinity for technology and its ever-evolving landscape, I am cons
 
 Collaboration is critical to achieving greatness. If you're a fellow tech enthusiast, a potential collaborator, or simply interested in my work, I'd love to connect! Feel free to reach out through the following channels:
 
-- LinkedIn: [kalash sharma](https://www.linkedin.com/in/kalashsharma99/)
-- Email: [kalash.strt@gmail.com](mailto:kalash.strt@gmail.com)
 
 Join me on this exciting journey of creativity and discovery, as we explore new horizons and make a positive impact together.
