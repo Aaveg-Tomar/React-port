@@ -1,4 +1,4 @@
-# Kalash's Portfolio
+# Aaveg Porfolio
 
 Welcome to my GitHub portfolio repository! This space showcases a curated selection of my creative works, projects, and accomplishments in Software Development. I am dedicated to pushing boundaries, solving challenges, and delivering innovative solutions that make a positive impact.
 
